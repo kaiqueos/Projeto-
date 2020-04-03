@@ -1,0 +1,1 @@
+pasta para imagens
